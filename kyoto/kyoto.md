@@ -6,18 +6,19 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Accommodation
 - **Gion Elite Terrace** (Check-in day, staying until May 25th)
+- Address: 44-21 Bishamoncho, Higashiyama Ward, Kyoto, 605-0812, Japan
 
 ### Morning (Airport Arrival)
 - **9:50 AM**: Arrive at airport, clear immigration and customs
 - **11:00 AM**: Take JR Haruka Limited Express to Kyoto Station (75 mins)
-- **12:15 PM**: Arrive at Kyoto Station, store luggage if needed
+- **12:15 PM**: Arrive at Kyoto Station, Go to B1 Baggage Room to have your luggage send to Gion Elite Terrace for ¥1000 per piece.
 - **12:30 PM**: Quick lunch at Kyoto Station (many options available in the station complex)
   - **Recommendation**: Ramen shops on the 10th floor "Ramen Street" for a fast but authentic meal
 
 ### Afternoon (Kinkaku-ji)
 - **1:30 PM**: Take bus #205 from Kyoto Station to Kinkaku-ji (40 mins)
 - **2:15 PM - 3:30 PM**: Visit Kinkaku-ji Temple (Golden Pavilion)
-- **3:45 PM**: Take bus #205 to Gion area (near your hotel)
+- **3:45 PM**: Take bus #205 to Gion Elite Terrace for check in.
 
 ### Late Afternoon/Evening (Gion)
 - **4:30 PM - 7:00 PM**: Explore Gion area (convenient from your hotel) in the following order:
