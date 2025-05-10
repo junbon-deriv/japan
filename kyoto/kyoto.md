@@ -11,34 +11,34 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 ### Morning (Airport Arrival)
 - **9:50 AM**: Arrive at airport, clear immigration and customs
 - **11:00 AM**: Take JR Haruka Limited Express to Kyoto Station (75 mins)
-- **12:15 PM**: Arrive at Kyoto Station, Go to B1 Baggage Room to have your luggage send to Gion Elite Terrace for ¥1000 per piece.
-- **12:30 PM**: Quick lunch at Kyoto Station (many options available in the station complex)
-  - **Recommendation**: Ramen shops on the 10th floor "Ramen Street" for a fast but authentic meal
+- **12:15 PM**: Arrive at Kyoto Station, take bus #205 to Gion Elite Terrace for check in.
 
-### Afternoon (Kinkaku-ji)
+### Afternoon to Evening (Gion)
+- Lunch at Tanikoshi (soba). Opens until 3 PM. Closes on Monday. About 10 minutes walk from Gion Elite Terrace.
+  
+- **2 PM - 7:00 PM**: Explore Gion area (convenient from your hotel) in the following order:
+  1. After lunch, walk to Pontocho park and stroll along Kamo river.
+  2. Shirakawa Canal & Shirakawa Dori
+  3. Tatsumi Bridge
+  4. Gion Shinbashi
+  5. Take a break at **Gion Komori** sweets cafe. Opens until 6:30 PM. Closes on Sunday & Monday.
+  6. Hanamikoji Street (prime time for geisha spotting from 5:30 PM)
+  7. Yasaka-no-To Pagoda (Hokanji Temple) - illuminated in the evening
+
+### After Gion (Kinkaku-ji) - Optional
 - **1:30 PM**: Take bus #205 from Kyoto Station to Kinkaku-ji (40 mins)
 - **2:15 PM - 3:30 PM**: Visit Kinkaku-ji Temple (Golden Pavilion)
 - **3:45 PM**: Take bus #205 to Gion Elite Terrace for check in.
 
-### Late Afternoon/Evening (Gion)
-- **4:30 PM - 7:00 PM**: Explore Gion area (convenient from your hotel) in the following order:
-  1. Shirakawa Canal & Shirakawa Dori
-  2. Tatsumi Bridge
-  3. Gion Shinbashi
-  4. Hanamikoji Street (prime time for geisha spotting from 5:30 PM)
-  5. Yasaka-no-To Pagoda (Hokanji Temple) - illuminated in the evening
-
 ### Dinner Options (Based on Opening Hours)
 - **7:00 PM - 9:00 PM**: Choose one of these recommended dinner spots:
-  - **Tosuiro** (tofu kaiseki) - reservation recommended
-  - **Misoka-an Kawamichi-ya** (traditional soba & udon)
-  - **Kyoto Gion Okaru** (Kyoto-style curry udon)
-  - **Pontocho Area** - numerous restaurants along this atmospheric alley
-
+  - **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
+  - **Gion Yata** - reservation by hotel staff (no online).
+  - **Shiraume Ryokan** - reservation by hotel staff (no online)
+  
 ### Evening
-- **9:00 PM - 10:00 PM**: Optional after-dinner stroll along Pontocho and Kamogawa River (both easily accessible from Gion Elite Terrace)
-- **Suggested Drinks**: Bar K6 or Bar Rocking Chair (if not too tired from travel)
-
+- **Suggested Drinks**: Music Bar Universe at Gion. Retro japanese bar.
+  
 ## DAY 2 (SAT, MAY 24): HIGASHIYAMA
 
 ### Accommodation
@@ -53,37 +53,30 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **8:30 AM - 11:30 AM**: Kiyomizu-dera and surroundings (15-20 minute walk from your hotel)
   1. Start at Kiyomizu-dera Temple early to avoid crowds
   2. Otowa Waterfall within temple grounds
-  3. Explore the Sannenzaka and Ninenzaka shopping streets
+  3. Explore the Sannenzaka and Ninenzaka shopping streets (Buy sweets at Ochanokosaisai)
 
 ### Lunch Options
 - **11:30 AM - 1:00 PM**: Choose one of these lunch spots:
-  - **Okutan** near Kiyomizu-dera (traditional yudofu) - reservation recommended
-  - **Ochanokosaisai** on Sanneizaka for tea and light meals
-  - **Kagizen Yoshifusa** (opens at 10 AM) for traditional sweets and tea
+  - **Okutan** near Kiyomizu-dera (traditional yudofu) - reservation recommended (bad review)
+  - **Wagyu Teppanyaki steak house Kiyomizu** near Kiyomizu-dera. Opens at 11:30 AM.
 
 ### Afternoon (Northern Higashiyama)
 - **1:00 PM - 5:30 PM**: Continue exploring Higashiyama:
   1. Maruyama Park and Yasaka Shrine
   2. Nanzen-ji Temple (Sanmon Gate for panoramic views)
-  3. Eikan-do Temple
-  4. Philosopher's Path walk (2km)
-  5. End at Ginkaku-ji (Silver Pavilion) before it closes at 5:30 PM
-
-### Afternoon Tea/Sweet Break
-- **3:00 PM - 3:30 PM**: During your walk, consider a brief stop at:
-  - **Cha-no-yu Café** along the Philosopher's Path
-  - Or try a street vendor for traditional sweets like dango or matcha ice cream
+  3. Take a break to visit **Kagizen Yoshifusa** (3:10 – 4:10 PM?) for traditional sweets and tea. Needs reservation. 10 minutes walk from Sanmon Gate.
+  4. Eikan-do Temple
+  5. Philosopher's Path walk (2km)
+  6. End at Ginkaku-ji (Silver Pavilion) before it closes at 5:30 PM
 
 ### Dinner Options
 - **6:00 PM - 8:00 PM**: Choose one of these dinner spots:
-  - **Omen** (udon) - near Ginkaku-ji
-  - **Gion Nanba** (kaiseki) - reservation required
-  - **Itoh Dining Kyoto** (Kobe beef teppanyaki) - reservation required
-  - **Return to Gion/Downtown** for wider restaurant options
+  - **Omen** (udon) - near Ginkaku-ji (nothing special)
+  - **Gion Nanba** (kaiseki) - reservation required (recent bad review)
+  - **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace. 
 
 ### Evening
 - **8:00 PM - 9:30 PM**: Illuminated evening views in Gion
-- **Dessert Option**: Gion Komori Sweets Cafe (if not too full from dinner)
 
 ## DAY 3 (SUN, MAY 25): UJI & FUSHIMI INARI
 
