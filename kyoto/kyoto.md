@@ -44,12 +44,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 ### Accommodation
 - **Gion Elite Terrace** (Second night)
 
-### Breakfast Options
-- **7:00 AM - 8:30 AM**: Choose one of these breakfast spots:
-  - **Choshoku Kishin (朝食嬉心)** - traditional Japanese breakfast
-  - **Convenience store breakfast** (7-Eleven, Lawson, Family Mart) - grab and go option
-
 ### Morning (Kiyomizu-dera Area - Within walking distance from Gion Elite Terrace)
+- Skips breakfast or get something at 7-elevan.
 - **8:30 AM - 11:30 AM**: Kiyomizu-dera and surroundings (15-20 minute walk from your hotel)
   1. Start at Kiyomizu-dera Temple early to avoid crowds
   2. Otowa Waterfall within temple grounds
@@ -76,7 +72,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   - **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace. 
 
 ### Evening
-- **8:00 PM - 9:30 PM**: Illuminated evening views in Gion
+- **8:00 PM - 9:30 PM**: Illuminated evening views in Gion. Chill at a random local bar.
 
 ## DAY 3 (SUN, MAY 25): UJI & FUSHIMI INARI
 
@@ -85,41 +81,30 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **Evening**: Check-in to Solaria Nishitetsu Hotel Kyoto Premier (staying until May 28th)
 
 ### Breakfast Options
-- **7:00 AM - 8:00 AM**: 
-  - **Honke Owariya** - traditional breakfast from 8:30 AM if timing works
-  - **Convenience store breakfast** for an earlier start
+- **7:30 AM - 8:30 AM**: Hotel breakfast before headingto Uji or skip breakfast to eat at Nakamura Tokichi Honten
 
 ### Morning (Uji)
-- **8:00 AM**: Check out and store luggage at Gion Elite Terrace
-- **8:30 AM**: Take JR Nara Line from Kyoto station to Uji (30 min)
+- **8:00 AM**: Check out and request for baggage to be transferred to Solaria Nishitetsu Hotel for ¥1400 per piece.
+- **8:30 AM**: Take JR Nara Line from Kyoto station to JR Uji station (30 min)
 - **9:00 AM - 12:00 PM**: Explore Uji:
-  1. Byodo-in Temple (9:00 AM - 5:00 PM)
-  2. Byodo-in Omotesando shopping street
-  3. Tea experience at Fukujuen Tea House (demonstrations at 10 AM, 11:30 AM)
+  1. First stop to Nakamura Tokichi Honten (main store) for matcha dessert. Opens at 10AM
+  2. Marukyu Koyamaen Main Plant. Match Latte and ice cream. Closes at 5PM
+  3. Head over to Yamamasa Koyamaen for some shopping
+  4. Lunch at **Udon Miyoshiya** at 1:30PM. Closes at 3:30PM. Closes on Thursday.
+  5. Byodo-in Temple (9:00 AM - 5:00 PM)
+  6. Byodo-in Omotesando shopping street
+  7. Tea experience at Fukujuen Uji (Tea Factory) (demonstrations at 10 AM, 11:30 AM)
+  8. Explore Tou-no-Shima island and Tachibana island. Head to Itoh Kyuemon for dessert. Closes at 6PM.
 
-### Lunch Options in Uji
-- **12:00 PM - 1:30 PM**: Choose one of these lunch spots:
-  - **Nakamura Tokichi Honten** for matcha noodles and tea
-  - **Torikiku** (とり菊) - local favorite for lunch sets
-  - **Nagano** for green tea soba
-
-### Afternoon (Fushimi Inari)
-- **1:45 PM**: Take JR Nara Line from Uji to Inari Station (15 mins)
-- **2:00 PM - 5:00 PM**: Fushimi Inari Shrine
+### Evening (Fushimi Inari) if have time to visit
+- **5:00 PM**: Take JR Nara Line from Uji to Inari Station (15 mins)
+- **5:30 PM - 7:30 PM**: Fushimi Inari Shrine
   - Hike through the torii gates (allow at least 2 hours for a good portion of the trail)
   - Visit during golden hour for beautiful photos if timing works
-- **5:30 PM**: Take train to Kyoto Station area to check into Solaria Nishitetsu Hotel Kyoto Premier
-
-### Sweet Break
-- **Between temple visits**: Don't miss trying:
-  - Matcha ice cream from Itoh Kyuemon 
-  - Traditional wagashi at Nakamura Tokichi
+- **7:30 PM**: Take train to Kyoto Station area to check into Solaria Nishitetsu Hotel Kyoto Premier
 
 ### Dinner Options
-- **5:30 PM - 7:30 PM**: Choose one of these dinner spots:
-  - Restaurants near Fushimi Inari for local specialties
-  - Return to Kyoto Station area (10th-11th floors have excellent restaurants with city views)
-  - **Warajiya わらじや** (unagi hotpot & congee) - opens at 4 PM
+- **8:30 PM**: Dinner at Tempura Ten no Meshi Gionhonten. reservation required. Closes at 11PM.
 
 ## DAY 4 (MON, MAY 26): AMANOHASHIDATE & INE
 
@@ -154,17 +139,12 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   - **Ine cafe** for a light refreshment
   - **Mukai Sake Brewery** offers sake tasting and ice cream
 
-### Early Dinner or Late Lunch
-- **5:00 PM - 5:30 PM** (must be quick to catch last bus):
-  - **Yosaso Waterfront Inn** for a quick meal before departure
-  - **Or** pack a bento to eat on the return journey
-
 ### Return Journey
 - **5:45 PM**: Take last bus from Ine to Amanohashidate
 - **6:30 PM**: Take train from Amanohashidate to Kyoto
 - **8:30 PM**: Arrive back in Kyoto Station (convenient to your hotel)
 
-### Late Dinner in Kyoto (if needed)
+### Late Dinner in Kyoto
 - **9:00 PM - 10:00 PM**:
   - Kyoto Station restaurant floors (some open until 10:00 PM)
   - Convenience store meal if returning very late
@@ -176,8 +156,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Breakfast Options
 - **7:00 AM - 8:00 AM**:
-  - **Hotel breakfast** at Solaria Nishitetsu Hotel Kyoto Premier if available
-  - **Iolite** or **Yoshihara coffee** for coffee and light breakfast
+  - **Iolite** for coffee and light breakfast. Opens at 7:30 AM. Closes on Sunday.
 
 ### Morning (Arashiyama)
 - **8:00 AM**: Take JR Sagano Line from Kyoto Station (near your hotel) to Saga-Arashiyama Station (15 mins)
@@ -191,7 +170,6 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **12:00 PM - 1:30 PM**: Choose one of these lunch spots:
   - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait
   - **Kumonocha cafe** for cloud cake and river views
-  - **Starbucks Arashiyama** - uniquely designed with tatami seating areas
 
 ### Afternoon (Nishiki Market)
 - **2:00 PM**: Return to Kyoto Station area
@@ -216,54 +194,3 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 ### Evening
 - **8:00 PM - 10:00 PM**: Evening stroll along the Kamo River
   - **Optional nightcap**: Sake Bar Yoramu for sake tasting
-
-## DAY 6 (WED, MAY 28): DEPARTURE TO OSAKA
-
-### Accommodation
-- **Morning**: Check-out from Solaria Nishitetsu Hotel Kyoto Premier
-- **Travel**: Departing to Osaka
-
-### Morning
-- **Check-out** and prepare for departure to Osaka
-- Allow time to pack and organize luggage
-- Convenient departure as Solaria Nishitetsu Hotel Kyoto Premier is located close to Kyoto Station
-
-### Travel to Osaka
-- Take JR train from Kyoto Station to Osaka (approximately 30-45 minutes depending on the train)
-- JR Special Rapid Service is recommended (fastest option)
-
-## PRACTICAL MEAL PLANNING TIPS
-
-### Breakfast Options Throughout Your Stay
-- **Early Risers (from 6:30 AM)**:
-  - Convenience stores (7-Eleven, Lawson, Family Mart) - always reliable
-  - Hotel/ryokan breakfast if included with your stay
-  - Choshoku Kishin for traditional Japanese breakfast
-- **Later Morning (from 8:00 AM)**:
-  - Coffee shops like Iolite, Yoshihara, Sentido, or Solkatt
-  - Bakeries like Amam Dacotan, Castella do Paulo
-
-### Lunch Strategies
-- **Consider having your main meal at lunch** when many high-end restaurants offer more affordable set menus
-- **Plan for 12:00 PM - 1:30 PM** as typical lunch times in Japan
-- **Make reservations** for popular restaurants like Okutan or Nakamura Tokichi
-- **Keep convenience stores in mind** for busy days when you need a quick meal
-
-### Dinner Planning
-- **Most dinner restaurants open from 5:00 PM or 6:00 PM**
-- **Make evening reservations** for specialized places like:
-  - Tosuiro (tofu kaiseki)
-  - Gion Nanba (kaiseki)
-  - Shiraume Ryokan (kaiseki meal at Edo-period teahouse)
-  - Itoh Dining Kyoto (Kobe beef teppanyaki)
-- **Last orders** are typically around 9:00 PM, with restaurants closing at 10:00 PM
-
-### Sweet Breaks & Hydration
-- **Schedule afternoon tea/sweet breaks** to rest between sightseeing
-- **Carry a water bottle** that you can refill (Japan has very clean water)
-- **Try unique Japanese soft drinks** from vending machines for a refreshing break
-
-### Special Dietary Considerations
-- **Vegetarian options** are available but limited - temples often serve vegetarian cuisine
-- **Communicate allergies clearly** - consider having them written in Japanese
-- **Convenience stores** label many food ingredients in English
