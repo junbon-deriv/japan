@@ -17,24 +17,21 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - Lunch at Tanikoshi (soba). Opens until 3 PM. Closes on Monday. About 10 minutes walk from Gion Elite Terrace.
   
 - **2 PM - 7:00 PM**: Explore Gion area (convenient from your hotel) in the following order:
-  1. After lunch, walk to Pontocho park and stroll along Kamo river.
-  2. Shirakawa Canal & Shirakawa Dori
-  3. Tatsumi Bridge
-  4. Gion Shinbashi
-  5. Take a break at **Gion Komori** sweets cafe. Opens until 6:30 PM. Closes on Sunday & Monday.
-  6. Hanamikoji Street (prime time for geisha spotting from 5:30 PM)
-  7. Yasaka-no-To Pagoda (Hokanji Temple) - illuminated in the evening
-
-### After Gion (Kinkaku-ji) - Optional
-- **1:30 PM**: Take bus #205 from Kyoto Station to Kinkaku-ji (40 mins)
-- **2:15 PM - 3:30 PM**: Visit Kinkaku-ji Temple (Golden Pavilion)
-- **3:45 PM**: Take bus #205 to Gion Elite Terrace for check in.
+  1. After lunch, go to **Otafuku Coffee**
+  2. Then, go to **Umezono Kawaramachi** (mitarashi dango, warabi mochi, macha parfait and cream anmitsu)
+  3. **Seien** for nerikiki.
+  4. Walk to Pontocho park and stroll along Kamo river.
+  5. Shirakawa Canal & Shirakawa Dori
+  6. Tatsumi Bridge
+  7. Gion Shinbashi
+  8. Take a break at **Gion Komori** sweets cafe. Opens until 6:30 PM. Closes on Sunday & Monday.
+  9. Hanamikoji Street (prime time for geisha spotting from 5:30 PM)
+  10. Yasaka-no-To Pagoda (Hokanji Temple) - illuminated in the evening
 
 ### Dinner Options (Based on Opening Hours)
 - **7:00 PM - 9:00 PM**: Choose one of these recommended dinner spots:
   - **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
   - **Gion Yata** - reservation by hotel staff (no online).
-  - **Shiraume Ryokan** - reservation by hotel staff (no online)
   
 ### Evening
 - **Suggested Drinks**: Music Bar Universe at Gion. Retro japanese bar.
@@ -45,15 +42,15 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **Gion Elite Terrace** (Second night)
 
 ### Morning (Kiyomizu-dera Area - Within walking distance from Gion Elite Terrace)
-- Skips breakfast or get something at 7-elevan.
+- Grab donuts from **Loose Kyoto**. Opens at 9AM.
 - **8:30 AM - 11:30 AM**: Kiyomizu-dera and surroundings (15-20 minute walk from your hotel)
   1. Start at Kiyomizu-dera Temple early to avoid crowds
   2. Otowa Waterfall within temple grounds
-  3. Explore the Sannenzaka and Ninenzaka shopping streets (Buy sweets at Ochanokosaisai)
+  3. Explore the Sannenzaka and Ninenzaka shopping streets (Buy sweets at **Ochanokosaisai**)
+  4. Go to **Kasagiya** for dessert.
 
 ### Lunch Options
 - **11:30 AM - 1:00 PM**: Choose one of these lunch spots:
-  - **Okutan** near Kiyomizu-dera (traditional yudofu) - reservation recommended (bad review)
   - **Wagyu Teppanyaki steak house Kiyomizu** near Kiyomizu-dera. Opens at 11:30 AM.
 
 ### Afternoon (Northern Higashiyama)
@@ -68,7 +65,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 ### Dinner Options
 - **6:00 PM - 8:00 PM**: Choose one of these dinner spots:
   - **Omen** (udon) - near Ginkaku-ji (nothing special)
-  - **Gion Nanba** (kaiseki) - reservation required (recent bad review)
+  - ~**Gion Nanba** - recent bad review and labelled as tourist trap.~
   - **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace. 
 
 ### Evening
@@ -87,14 +84,14 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **8:00 AM**: Check out and request for baggage to be transferred to Solaria Nishitetsu Hotel for ¥1400 per piece.
 - **8:30 AM**: Take JR Nara Line from Kyoto station to JR Uji station (30 min)
 - **9:00 AM - 12:00 PM**: Explore Uji:
-  1. First stop to Nakamura Tokichi Honten (main store) for matcha dessert. Opens at 10AM
-  2. Marukyu Koyamaen Main Plant. Match Latte and ice cream. Closes at 5PM
-  3. Head over to Yamamasa Koyamaen for some shopping
+  1. First stop to **Nakamura Tokichi Honten** (main store) for matcha dessert. Opens at 10AM
+  2. **Marukyu Koyamaen** Main Plant. Match Latte and ice cream. Closes at 5PM
+  3. Head over to **Yamamasa Koyamaen** for some shopping
   4. Lunch at **Udon Miyoshiya** at 1:30PM. Closes at 3:30PM. Closes on Thursday.
   5. Byodo-in Temple (9:00 AM - 5:00 PM)
   6. Byodo-in Omotesando shopping street
-  7. Tea experience at Fukujuen Uji (Tea Factory) (demonstrations at 10 AM, 11:30 AM)
-  8. Explore Tou-no-Shima island and Tachibana island. Head to Itoh Kyuemon for dessert. Closes at 6PM.
+  7. Tea experience at **Fukujuen Uji** (Tea Factory) (demonstrations at 10 AM, 11:30 AM)
+  8. Explore Tou-no-Shima island and Tachibana island. Head to **Itoh Kyuemon** for dessert. Closes at 6PM.
 
 ### Evening (Fushimi Inari) if have time to visit
 - **5:00 PM**: Take JR Nara Line from Uji to Inari Station (15 mins)
@@ -104,7 +101,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **7:30 PM**: Take train to Kyoto Station area to check into Solaria Nishitetsu Hotel Kyoto Premier
 
 ### Dinner Options
-- **8:30 PM**: Dinner at Tempura Ten no Meshi Gionhonten. reservation required. Closes at 11PM.
+- **8:30 PM**: Dinner at **Tempura Ten no Meshi Gionhonten**. reservation required. Closes at 11PM.
 
 ## DAY 4 (MON, MAY 26): AMANOHASHIDATE & INE
 
@@ -159,17 +156,19 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   - **Iolite** for coffee and light breakfast. Opens at 7:30 AM. Closes on Sunday.
 
 ### Morning (Arashiyama)
-- **8:00 AM**: Take JR Sagano Line from Kyoto Station (near your hotel) to Saga-Arashiyama Station (15 mins)
+- **8:00 AM**: Take JR Sagano Line from Kyoto-Kawaramachi Station (near your hotel) to Saga-Arashiyama Station (50 mins)
 - **8:30 AM - 12:00 PM**: Explore Arashiyama:
   1. Arashiyama Bamboo Grove (before 9 AM to avoid crowds)
   2. Tenryu-ji Temple (UNESCO World Heritage Site)
   3. Togetsukyo Bridge and riverside
   4. Optional: Monkey Park Iwatayama
+  5. Option to drop by **Castella do paulo** for dessert. Quite out of the way.
 
 ### Lunch Options in Arashiyama
 - **12:00 PM - 1:30 PM**: Choose one of these lunch spots:
   - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait
   - **Kumonocha cafe** for cloud cake and river views
+
 
 ### Afternoon (Nishiki Market)
 - **2:00 PM**: Return to Kyoto Station area
@@ -184,6 +183,9 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   - **Yukinoshita** for pancakes or shaved ice
   - **Chakoubou Nagatake** for matcha dessert
   - **Amairo Cafe** for taiyaki (fish-shaped cake with filling)
+  - **Aman dacotan** for bakery.
+  - **Toraya Karyo Kyoto Ichijo** for Yorokobi no Uta (30 minutes from Nishiki by foot).
+  - **Demachi futama** if not tired. 30 minutes from Solaria Nishitetsu
 
 ### Dinner Options
 - **6:00 PM - 8:00 PM**:
@@ -194,3 +196,4 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 ### Evening
 - **8:00 PM - 10:00 PM**: Evening stroll along the Kamo River
   - **Optional nightcap**: Sake Bar Yoramu for sake tasting
+
