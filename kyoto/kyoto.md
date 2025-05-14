@@ -30,7 +30,6 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Dinner Options (Based on Opening Hours)
 - **7:00 PM - 9:00 PM**: Choose one of these recommended dinner spots:
-  - **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
   - **Gion Yata** - reservation by hotel staff (no online).
   
 ### Evening
@@ -64,7 +63,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Dinner Options
 - **6:00 PM - 8:00 PM**: Choose one of these dinner spots:
-  - **Omen** (udon) - near Ginkaku-ji (nothing special)
+  - ~**Omen** (udon) - near Ginkaku-ji (nothing special)~
   - ~**Gion Nanba** - recent bad review and labelled as tourist trap.~
   - **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace. 
 
@@ -101,7 +100,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **7:30 PM**: Take train to Kyoto Station area to check into Solaria Nishitetsu Hotel Kyoto Premier
 
 ### Dinner Options
-- **8:30 PM**: Dinner at **Tempura Ten no Meshi Gionhonten**. reservation required. Closes at 11PM.
+- **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
 
 ## DAY 4 (MON, MAY 26): AMANOHASHIDATE & INE
 
@@ -111,7 +110,6 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 ### Early Breakfast
 - **6:00 AM - 6:45 AM**:
   - **Convenience store breakfast** (quickest option for early departure)
-  - **Hotel/ryokan breakfast** if included with your stay
 
 ### Morning Journey & Amanohashidate
 - **7:00 AM**: Take early limited express train from Kyoto Station (near your hotel) on Kyoto Tango Railway to Amanohashidate (2 hours)
@@ -143,8 +141,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Late Dinner in Kyoto
 - **9:00 PM - 10:00 PM**:
-  - Kyoto Station restaurant floors (some open until 10:00 PM)
-  - Convenience store meal if returning very late
+  - **8:30 PM**: Dinner at **Tempura Ten no Meshi Gionhonten**. reservation required. Closes at 11PM.
 
 ## DAY 5 (TUE, MAY 27): ARASHIYAMA & NISHIKI MARKET
 
@@ -166,9 +163,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Lunch Options in Arashiyama
 - **12:00 PM - 1:30 PM**: Choose one of these lunch spots:
-  - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait
-  - **Kumonocha cafe** for cloud cake and river views
-
+  - **Nishiki Restaurant** (kaiseki ryori) for lunch.
+  - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait or **Kumonocha cafe** for cloud cake and river views. Maybe just choose either one.
 
 ### Afternoon (Nishiki Market)
 - **2:00 PM**: Return to Kyoto Station area
@@ -189,9 +185,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Dinner Options
 - **6:00 PM - 8:00 PM**:
-  - **Nishiki Restaurant** for kaiseki ryori
-  - **Wagyu Sukiyaki Kyoto Chikarayama** (reservation needed)
-  - **Pontocho or Kiyamachi Street** restaurants for evening atmosphere
+  - **Wagyu Sukiyaki Kyoto Chikarayama** (reservation needed). Closes 11PM.
+  - Or **Omen Shijo Ponto-cho** for Udon. Cheaper meal. Closes at 8PM.
 
 ### Evening
 - **8:00 PM - 10:00 PM**: Evening stroll along the Kamo River
