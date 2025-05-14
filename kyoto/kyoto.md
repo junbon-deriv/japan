@@ -140,8 +140,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **8:30 PM**: Arrive back in Kyoto Station (convenient to your hotel)
 
 ### Late Dinner in Kyoto
-- **9:00 PM - 10:00 PM**:
-  - **8:30 PM**: Dinner at **Tempura Ten no Meshi Gionhonten**. reservation required. Closes at 11PM.
+- **9:00 PM - 10:00 PM**: Dinner at **Tempura Ten no Meshi Gionhonten**. reservation required. Closes at 11PM.
 
 ## DAY 5 (TUE, MAY 27): ARASHIYAMA & NISHIKI MARKET
 
@@ -163,7 +162,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 
 ### Lunch Options in Arashiyama
 - **12:00 PM - 1:30 PM**: Choose one of these lunch spots:
-  - **Nishiki Restaurant** (kaiseki ryori) for lunch.
+  - **Nishiki Restaurant** (kaiseki ryori) for lunch. Maybe can skip if no money. Afternoon will explore Nishiki market.
   - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait or **Kumonocha cafe** for cloud cake and river views. Maybe just choose either one.
 
 ### Afternoon (Nishiki Market)
