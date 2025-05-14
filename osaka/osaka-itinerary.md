@@ -19,22 +19,18 @@ The itinerary covers a 4-day stay in Osaka (May 28-31, 2025) with a base at **Ca
   * Explore **Hozenji Yokocho** alleyway - traditional stone-paved alley with classic Osaka atmosphere
   * Shop at **Doguyasuji arcade** - famous for kitchenware and restaurant supplies
   * Visit **Tazaemonbashi Bridge** for classic Dotonbori views
+  * Food/snacks while strolling:
+    * **551 Horai** (pork buns) - Perfect grab-and-go option while exploring Dotonbori for snacks
+    * **Kougaryu Main Store** (takoyaki) - Award-winning takoyaki in Dotonbori
+    * **Naruto Taiyaki Hompo** - taiyaki
+    * **Rikuro's Namba Main Branch** - cheese cake
+    * **Osaka Naniwaya** - taiyaki
 
 #### Evening
 * **Shinsekai** (16:30-19:30)
   * Visit **Tsutenkaku Tower** before sunset (closes at 20:00)
   * Enjoy dinner in this retro district
-
-#### Restaurant Priorities for Day 6:
-1. **Lunch Options:**
-   * **551 Horai** (pork buns) - Perfect grab-and-go option while exploring Dotonbori for snacks
-   * **Kougaryu Main Store** (takoyaki) - Award-winning takoyaki in Dotonbori
-   * **Naruto Taiyaki Hompo** - taiyaki
-   * **Rikuri's Namba Main Branch** - cheese cake
-   * **Osaka Naniwaya** - taiyaki
-
-2. **Dinner Options:**
-   * **Toriyatai Hayashiya** (yakitori) - Great dinner option in Shinsekai area. Closes at 10:00PM
+  * **Toriyatai Hayashiya** (yakitori) - Great dinner option in Shinsekai area. Closes at 10:00PM
 
 #### Note:
 * Keep **Yodobashi Camera Multimedia Umeda** (floor 5 for gachapon) in mind if you have extra time
@@ -65,15 +61,12 @@ The itinerary covers a 4-day stay in Osaka (May 28-31, 2025) with a base at **Ca
   * Take the Rokko Cable Line to Rokko Sanjo Station
   * Explore Rokko Alpine Botanical Garden and Rokkosan pasture
   * Enjoy panoramic views of Kobe and Osaka
+  *  **Neiro** for lunch - Popular local restaurant serving delicious Kobe beef near Shin-Kobe Station, making it a convenient stop after visiting Nunobiki Herb Garden
 
 #### Evening
 * **Kitano-cho** - Historic foreign settlement with interesting architecture
 * **Kobe Chinatown** - End your day with dinner here before returning to Osaka
-
-#### Restaurant Options for Kobe:
-* **Lunch Choice**: **Neiro** - Popular local restaurant serving delicious Kobe beef near Shin-Kobe Station, making it a convenient stop after visiting Nunobiki Herb Garden
-
-* **Dinner Choice**: **Mouriya Sannomiya** (Near Chinatown) - Historic restaurant established in 1885, perfect location for dinner after exploring Kitano-cho and before heading to Chinatown. Reservation required.
+* **Okonomiyaki Sakaba** for dinner in Osaka (near Namba). Closes at 11PM.
 
 ---
 
@@ -82,7 +75,11 @@ The itinerary covers a 4-day stay in Osaka (May 28-31, 2025) with a base at **Ca
 #### Morning
 * **Minoh Falls**:
   * Take Hankyu Railway from Umeda Station → Ishibashi Station → Hankyu Minoh Station
-  * 40-minute scenic walk from the station to the falls
+  * 40-minute scenic walk from the station to the falls. Will stroll at Minoh falls to eat and snack before heading to Katsuoji temple.
+  * **Mino Kanko Hotel Restaurant** - Located near Minoh Falls, offering traditional Japanese cuisine with views of the park
+  * **Mino Stall Street** - The walking path to Minoh Falls is lined with small food stalls and shops; try **Hisakawa** or **Takimoto** for the famous "momiji tempura" (deep-fried maple leaves) - a local specialty unique to Minoh
+  * **Ichimian** - Popular soba restaurant on the path to the falls, known for handmade noodles
+  * If you're planning to head directly to Katsuoji without lingering at Minoh, consider bringing a portable lunch from a convenience store (like 7-Eleven or Lawson) near your starting train station, as dining options around Katsuoji Temple are limited
 
 #### Afternoon
 * **Katsuoji Temple**:
@@ -93,17 +90,8 @@ The itinerary covers a 4-day stay in Osaka (May 28-31, 2025) with a base at **Ca
 * **Amerikamura, Shinsaibashi & Umeda**:
   * Shopping and final exploration of Osaka's urban centers
   * **Umeda Sky Building** for sunset views (¥2000) - recommended around 17:00-18:00
-
-#### Restaurant Priorities for Day 9:
-1. **Lunch Options:**
-   * **Mino Kanko Hotel Restaurant** - Located near Minoh Falls, offering traditional Japanese cuisine with views of the park
-   * **Mino Stall Street** - The walking path to Minoh Falls is lined with small food stalls and shops; try **Hisakawa** or **Takimoto** for the famous "momiji tempura" (deep-fried maple leaves) - a local specialty unique to Minoh
-   * **Ichimian** - Popular soba restaurant on the path to the falls, known for handmade noodles
-   * If you're planning to head directly to Katsuoji without lingering at Minoh, consider bringing a portable lunch from a convenience store (like 7-Eleven or Lawson) near your starting train station, as dining options around Katsuoji Temple are limited
-
-2. **Dinner Options:**
-   * **Gyukatsu Motomura Umeda** - closes at 11:00PM
+  * **Gyukatsu Motomura Namba** - closes at 11:00PM
 
 ### Day 10 (Sun, June 1st): Anniversary plan!
 
-???!!
+* Fruit cake Hikari :P
