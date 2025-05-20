@@ -29,8 +29,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   10. Yasaka-no-To Pagoda (Hokanji Temple) - illuminated in the evening
 
 ### Dinner Options (Based on Opening Hours)
-- **7:00 PM - 9:00 PM**: Choose one of these recommended dinner spots:
-  - **Gion Yata** - reservation by hotel staff (no online).
+- **7:00 PM - 9:00 PM**: Choose one of these recommended dinner spots: **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
+
   
 ### Evening
 - **Suggested Drinks**: Music Bar Universe at Gion. Retro japanese bar.
@@ -65,7 +65,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **6:00 PM - 8:00 PM**: Choose one of these dinner spots:
   - ~**Omen** (udon) - near Ginkaku-ji (nothing special)~
   - ~**Gion Nanba** - recent bad review and labelled as tourist trap.~
-  - **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace. 
+  - **Gion Yata** - reservation by hotel staff (no online). 
 
 ### Evening
 - **8:00 PM - 9:30 PM**: Illuminated evening views in Gion. Chill at a random local bar.
@@ -100,7 +100,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **7:30 PM**: Take train to Kyoto Station area to check into Solaria Nishitetsu Hotel Kyoto Premier
 
 ### Dinner Options
-- **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
+- **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace.
 
 ## DAY 4 (MON, MAY 26): AMANOHASHIDATE & INE
 
