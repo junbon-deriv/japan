@@ -1,7 +1,5 @@
 # DETAILED DAILY SCHEDULE FOR KYOTO TRIP
 
-This schedule balances sightseeing with meals, organizing food options by breakfast, lunch, and dinner based on opening hours. The plan prioritizes efficient routes while allowing time to enjoy both cultural experiences and local cuisine.
-
 ## DAY 1 (FRI, MAY 23): GION & KINKAKU-JI
 
 ### Accommodation
@@ -28,8 +26,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   9. Hanamikoji Street (prime time for geisha spotting from 5:30 PM)
   10. Yasaka-no-To Pagoda (Hokanji Temple) - illuminated in the evening
 
-### Dinner Options (Based on Opening Hours)
-- **7:00 PM - 9:00 PM**: Choose one of these recommended dinner spots: **Tosuiro** (tofu kaiseki) - reservation recommended (online reservation available)
+### Dinner
+- **Tosuiro** (tofu kaiseki) - reservation made at 7pm.
 
   
 ### Evening
@@ -48,9 +46,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   3. Explore the Sannenzaka and Ninenzaka shopping streets (Buy sweets at **Ochanokosaisai**)
   4. Go to **Kasagiya** for dessert.
 
-### Lunch Options
-- **11:30 AM - 1:00 PM**: Choose one of these lunch spots:
-  - **Wagyu Teppanyaki steak house Kiyomizu** near Kiyomizu-dera. Opens at 11:30 AM.
+### Lunch
+  - **Wagyu Teppanyaki steak house Kiyomizu** near Kiyomizu-dera. Reservation made at 1pm.
 
 ### Afternoon (Northern Higashiyama)
 - **1:00 PM - 5:30 PM**: Continue exploring Higashiyama:
@@ -61,11 +58,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   5. Philosopher's Path walk (2km)
   6. End at Ginkaku-ji (Silver Pavilion) before it closes at 5:30 PM
 
-### Dinner Options
-- **6:00 PM - 8:00 PM**: Choose one of these dinner spots:
-  - ~**Omen** (udon) - near Ginkaku-ji (nothing special)~
-  - ~**Gion Nanba** - recent bad review and labelled as tourist trap.~
-  - **Gion Yata** - reservation by hotel staff (no online). 
+### Dinner
+  - **Gion Yata** - reservation made at 7pm
 
 ### Evening
 - **8:00 PM - 9:30 PM**: Illuminated evening views in Gion. Chill at a random local bar.
@@ -80,7 +74,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **7:30 AM - 8:30 AM**: Hotel breakfast before headingto Uji or skip breakfast to eat at Nakamura Tokichi Honten
 
 ### Morning (Uji)
-- **8:00 AM**: Check out and request for baggage to be transferred to Solaria Nishitetsu Hotel for ¥1400 per piece.
+- **8:00 AM**: Check out and request for baggage to be transferred to Solaria Nishitetsu Hotel for ¥2300 per piece.
 - **8:30 AM**: Take JR Nara Line from Kyoto station to JR Uji station (30 min)
 - **9:00 AM - 12:00 PM**: Explore Uji:
   1. First stop to **Nakamura Tokichi Honten** (main store) for matcha dessert. Opens at 10AM
@@ -100,7 +94,7 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **7:30 PM**: Take train to Kyoto Station area to check into Solaria Nishitetsu Hotel Kyoto Premier
 
 ### Dinner Options
-- **Gion Unagi Kawato** Opens at 5:00-9:30 PM. Needs reservation - can be done online. 7 minutes walk from Gion Elite Terrace.
+- **Gion Unagi Kawato** 15 minutes walk from Gion Elite Terrace. Reservation made at 8pm.
 
 ## DAY 4 (MON, MAY 26): AMANOHASHIDATE & INE
 
@@ -139,8 +133,8 @@ This schedule balances sightseeing with meals, organizing food options by breakf
 - **6:30 PM**: Take train from Amanohashidate to Kyoto
 - **8:30 PM**: Arrive back in Kyoto Station (convenient to your hotel)
 
-### Late Dinner in Kyoto
-- **9:00 PM - 10:00 PM**: Dinner at **Tempura Ten no Meshi Gionhonten**. reservation required. Closes at 11PM.
+### Dinner
+- **Tempura Ten no Meshi Gionhonten**. Reservation made at 9pm. Closes at 11PM.
 
 ## DAY 5 (TUE, MAY 27): ARASHIYAMA & NISHIKI MARKET
 
@@ -158,12 +152,13 @@ This schedule balances sightseeing with meals, organizing food options by breakf
   2. Tenryu-ji Temple (UNESCO World Heritage Site)
   3. Togetsukyo Bridge and riverside
   4. Optional: Monkey Park Iwatayama
-  5. Option to drop by **Castella do paulo** for dessert. Quite out of the way.
+  
 
-### Lunch Options in Arashiyama
-- **12:00 PM - 1:30 PM**: Choose one of these lunch spots:
-  - **Nishiki Restaurant** (kaiseki ryori) for lunch. Maybe can skip if no money. Afternoon will explore Nishiki market.
-  - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait or **Kumonocha cafe** for cloud cake and river views. Maybe just choose either one.
+### Lunch
+- **Mukh** kaiseki. Reservation madd at 12:15pm. Dining time 70 minutes.
+
+
+- **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait or **Kumonocha cafe** for cloud cake and river views. After or before lunch.
 
 ### Afternoon (Nishiki Market)
 - **2:00 PM**: Return to Kyoto Station area
