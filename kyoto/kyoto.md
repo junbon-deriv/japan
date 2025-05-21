@@ -12,7 +12,7 @@
 - **12:15 PM**: Arrive at Kyoto Station, take bus #205 to Gion Elite Terrace for check in.
 
 ### Afternoon to Evening (Gion)
-- Lunch at Tanikoshi (soba). Opens until 3 PM. Closes on Monday. About 10 minutes walk from Gion Elite Terrace.
+- Lunch at **Tanikoshi** (soba). Opens until 3 PM. Closes on Monday. About 10 minutes walk from Gion Elite Terrace.
   
 - **2 PM - 7:00 PM**: Explore Gion area (convenient from your hotel) in the following order:
   1. After lunch, go to **Otafuku Coffee**
@@ -59,7 +59,7 @@
   6. End at Ginkaku-ji (Silver Pavilion) before it closes at 5:30 PM
 
 ### Dinner
-  - **Gion Yata** - reservation made at 7pm
+  - **Gion Yata** - reservation made at 7pm.
 
 ### Evening
 - **8:00 PM - 9:30 PM**: Illuminated evening views in Gion. Chill at a random local bar.
@@ -134,7 +134,7 @@
 - **8:30 PM**: Arrive back in Kyoto Station (convenient to your hotel)
 
 ### Dinner
-- **Tempura Ten no Meshi Gionhonten**. Reservation made at 9pm. Closes at 11PM.
+- **Tempura Ten no Meshi Gionhonten**. Reservation made at 9pm. 15 minutes walk from hotel. Closes at 11PM.
 
 ## DAY 5 (TUE, MAY 27): ARASHIYAMA & NISHIKI MARKET
 
@@ -155,7 +155,7 @@
   
 
 ### Lunch
-- **Mukh** kaiseki. Reservation madd at 12:15pm. Dining time 70 minutes.
+- **Muku** kaiseki. Reservation made at 12:15pm. Dining time 70 minutes.
 
 
 - **eX Cafe Kyoto Arashiyama** for its famous Tenryuji Parfait or **Kumonocha cafe** for cloud cake and river views. After or before lunch.
